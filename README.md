@@ -54,3 +54,4 @@ More information on [this link](https://stackoverflow.com/questions/26256279/how
 #
 
 Compiled By [Thomas Sankara](https://youtube.com/@tsbsankara)
+[Donate](https://streamlabs.com/tsbsankara1/tip) to support the channel: https://streamlabs.com/tsbsankara1/tip
